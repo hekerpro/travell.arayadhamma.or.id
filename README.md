@@ -1,1 +1,0 @@
-# travell.arayadhamma.or.id
